@@ -3,7 +3,7 @@
 
 - 👨‍💻 Visit my portfolio at [https://fatimatisha.github.io/portfolio/](https://fatimatisha.github.io/portfolio/)
 
-- 📫 How to reach me **fatimajannat20188@gmail.com**
+- 📫 How to reach me **jannattisha131@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
